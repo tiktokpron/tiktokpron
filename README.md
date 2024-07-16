@@ -4,6 +4,9 @@
 
 -Tiktok成人 最新下载地址（免翻墙，激情看片）：https://8989b.hjk6aw.com
 
+-Tiktok成人 回家邮箱，发送任意信息到邮箱 tiktok.dx0003@gmail.com
+即可收到最新下载地址
+
 -Tiktok成人 官方TG：https://t.me/tiktokguanfang01
 
 -Tiktok成人 官方土豆：https://ptd6.app/TikTok111
