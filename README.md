@@ -4,7 +4,7 @@
 
 -Tiktok成人 最新下载地址（免翻墙，激情看片）：  https://9f1ad.rmmwkyxip.com
 
--Tiktok成人 回家邮箱，发送任意信息到邮箱 tiktok.dx0003@gmail.com
+-Tiktok成人 回家邮箱，发送任意信息到邮箱 lixiaomei1708@gmail.com
 即可收到最新下载地址
 
 -Tiktok成人 官方TG：https://t.me/tiktokguanfang01
