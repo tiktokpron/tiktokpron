@@ -2,7 +2,7 @@
 
 -Tiktok成人 永久地址（永久有效，谨防迷路，需翻墙）：https://ttav.life
 
--Tiktok成人 最新下载地址（免翻墙，激情看片）：  https://9f1ad.rmmwkyxip.com
+-Tiktok成人 最新下载地址（免翻墙，激情看片）：  https://77d2dc.rmmwkyxip.com
 
 -Tiktok成人 回家邮箱，发送任意信息到邮箱 lixiaomei1708@gmail.com
 即可收到最新下载地址
